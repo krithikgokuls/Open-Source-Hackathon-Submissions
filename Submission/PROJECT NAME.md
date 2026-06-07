@@ -9,7 +9,7 @@ Krithik Gokul S
 krithikgokuls
 
 **Team Name:**  
-ECE Kings
+ECE DAZZLERS
 
 **College/University:**  
 K.Ramakrishnan College of Engineering
